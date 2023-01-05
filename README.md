@@ -6,7 +6,7 @@
  <br>
 </h1>
 
-## Will be uploaded soon...
+## If You Want Buy Call Me In  <a href="https://t.me/rip_pv">Telegram</a><br>
 
 ## Info Web Attack Private
 
@@ -15,7 +15,6 @@
 * Admin Page Finder +
 * Fake Information
 
-Password RAR File : R.I.P
 
 # Contact Me
  
